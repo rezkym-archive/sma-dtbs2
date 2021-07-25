@@ -80,13 +80,13 @@ Kunjungi link berikut ini < link >, lalu gunakan akun dibawah ini untuk masuk
 ## Pengembang
 
 * Rezky Maulana
-	* [Instagram](instagram.com/rezzkyym)
+	* [Instagram](https://www.instagram.com/rezzkyym)
 	* [Facebook](https://www.facebook.com/rzky.nv/)
 	* [linkedin](https://www.linkedin.com/in/rezky-maulana-3b249a1aa/)
 	* [Portofolio](https://rezky.my.id)
 
 * Farah Nawal Azalia as Mood Contributor
-	* [Instagram](instagram.com/farahnwll)
+	* [Instagram](https://www.instagram.com/farahnwll)
 		
 
 ## Kontribusi 🙌
