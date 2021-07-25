@@ -86,6 +86,7 @@ Kunjungi link berikut ini < link >, lalu gunakan akun dibawah ini untuk masuk
 	* [Portofolio](https://rezky.my.id)
 
 * Farah Nawal Azalia as Mood Contributor
+	* [Instagram](instagram.com/farahnwll)
 		
 
 ## Kontribusi 🙌
